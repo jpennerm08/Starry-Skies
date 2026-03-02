@@ -1,4 +1,4 @@
-# The-Starry-Skies
+# Starry-Skies
 "Can I reach the skies
 Even though I can't fly?"
 I was given a no
@@ -8,7 +8,9 @@ To stretch and reach
 Beyond the night
 The blinding light
 Didn't matter if it's for spite
-Didn't matter if I lost the drive
 Didn't matter if I couldn't fly
-I will soar above the highs 
-And will see the end- The Starry Skies
+I wish to be like a pig
+When pigs fly, when I fly
+I will reach the skies
+*pause for applause*
+Oink Oink...signing off - DJ piggy pork (slowed + reverb)
